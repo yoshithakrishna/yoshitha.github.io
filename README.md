@@ -1,2 +1,2 @@
-# yoshitha.github.in
+# yoshithakrishna.github.in
 my portfolio
